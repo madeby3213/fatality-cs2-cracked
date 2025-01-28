@@ -1,1 +1,1 @@
-this file is a cracked version of a cheat called fatality- if it says that viruses have been detected its a false positive that cheats often recieve have fun using fatality!
+this file is a cracked version of a cheat called fatality.-if it says that viruses have been detected its a false positive that cheats often recieve which you just have to turn your antivirus off for, have fun using fatality!
